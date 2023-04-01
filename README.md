@@ -4,4 +4,7 @@
 :iphone: (14) 99838-7862 <br>
 :envelope: gjgiroto@gmail.com
 
+## Objetivo
+Aprendiz/Estágio em áreas da tecnolia 
+
 
