@@ -37,12 +37,13 @@ Concluído
 
 Concluído
 
-* MET (Michigan Language Assessment) |Teste de Audição e Escrita - Nível B1 de fluência
+* MET (Michigan Language Assessment) |Teste de Audição e Escrita 
+
+Nível B1 de fluência
 
 ## Adicionais
 * 11º edição da Olímpiada Nacional de História do Brasil
-
-| Fase Concluídas: 1, 2, 3 e 4
+- Fase Concluídas: 1, 2, 3 e 4
 
 * Certificado de Participação com Exelência- Concurso de Redação | E. E. José Ambrósio dos Santos 2021
 
