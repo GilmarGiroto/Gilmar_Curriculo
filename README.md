@@ -26,25 +26,22 @@ Período: 2021 - Atual
 
 ## Cursos
 * Profissional Administrativo Tecnológico |MicroPro
-
-Concluído
+    - Concluído
 
 * Digitação |MicroPro
-
-Concluído 
+    - Concluído 
 
 * Inglês - In Focus |Fisk Marília
-
-Concluído
+    - Concluído
 
 * MET (Michigan Language Assessment) |Teste de Audição e Escrita 
 
-Nível B1 de fluência
+    - Nível B1 de fluência
 
 ## Adicionais
 * 11º edição da Olímpiada Nacional de História do Brasil - Fase Concluídas: 1, 2, 3 e 4
 
-* Certificado de Participação com Exelência- Concurso de Redação | E. E. José Ambrósio dos Santos 2021
+* Certificado de Participação com Exelência - Concurso de Redação | E. E. José Ambrósio dos Santos 2021
 
 
 
