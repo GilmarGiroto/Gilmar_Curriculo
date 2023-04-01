@@ -42,7 +42,7 @@ Concluído
 Nível B1 de fluência
 
 ## Adicionais
-* 11º edição da Olímpiada Nacional de História do Brasil
+* 11º edição da Olímpiada Nacional de História do Brasil 
 - Fase Concluídas: 1, 2, 3 e 4
 
 * Certificado de Participação com Exelência- Concurso de Redação | E. E. José Ambrósio dos Santos 2021
