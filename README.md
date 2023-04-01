@@ -11,4 +11,15 @@ Aprendiz/Estágio em áreas da tecnologia
 Análise e Desenvolvimento de Sistemas | Unimar
 1º Semestre - Finalização em 2026
 
+## Experiênicas
+### Lanchonete Dona Laide
+Função: Entregador e garçom
+Período: 2020 - 2021
+
+### GEO - Gestão Especializada em Obras
+Função: Auxiliar Financeiro e Administrativo 
+Período: 2021 - Atual
+
+
+
 
