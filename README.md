@@ -10,6 +10,7 @@ Aprendiz/Estágio em áreas da tecnologia
 ## Formação 
 Análise e Desenvolvimento de Sistemas | Unimar
 1º Semestre - Finalização em 2026
+[_Clique aqui para ver as disciplinas do curso._](https://oficial.unimar.br/cursos/analise-e-desenvolvimento-de-sistemas/)
 
 ## Experiênicas
 * Lanchonete Dona Laide
