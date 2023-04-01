@@ -20,6 +20,23 @@ Período: 2020 - 2021
 Função: Auxiliar Financeiro e Administrativo 
 Período: 2021 - Atual
 
+## Cursos
+### Profissional Administrativo Tecnológico
+| MicroPro
+Concluído
+### Digitação
+| MicroPro
+Concluído 
+### Inglês - In Focus 
+| Fisk Marília
+Concluído
+### MET (Michigan Language Assessment) 
+| Teste de Audição e Escrita - Nível B1 de fluência
+
+
+
+
+
 
 
 
