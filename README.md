@@ -24,16 +24,16 @@ Período: 2021 - Atual
 
 ## Cursos
 * Profissional Administrativo Tecnológico |MicroPro <br>
-- Concluído
+     Concluído
 
 * Digitação |MicroPro <br>
-- Concluído 
+     Concluído 
 
 * Inglês - In Focus |Fisk Marília <br>
-- Concluído
+     Concluído
 
 * MET (Michigan Language Assessment) |Teste de Audição e Escrita <br>
-- Nível B1 de fluência
+     Nível B1 de fluência
 
 ## Adicionais
 * 11º edição da Olímpiada Nacional de História do Brasil - Fase Concluídas: 1, 2, 3 e 4
