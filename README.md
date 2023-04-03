@@ -14,7 +14,7 @@ Análise e Desenvolvimento de Sistemas | Unimar <br>
 
 [_Clique aqui para ver as disciplinas do curso._](https://oficial.unimar.br/cursos/analise-e-desenvolvimento-de-sistemas/)
 
-## Experiênicas
+## Experiências
 * Lanchonete Dona Laide <br>
 Função: Entregador e garçom <br>
 Período: 2020 - 2021
@@ -24,16 +24,16 @@ Função: Auxiliar Financeiro e Administrativo <br>
 Período: 2021 - Atual
 
 ## Cursos
-* Profissional Administrativo Tecnológico |MicroPro <br>
+* Profissional Administrativo Tecnológico | MicroPro <br>
      Concluído
 
-* Digitação |MicroPro <br>
+* Digitação | MicroPro <br>
      Concluído 
 
-* Inglês - In Focus |Fisk Marília <br>
+* Inglês - In Focus | Fisk Marília <br>
      Concluído
 
-* MET (Michigan Language Assessment) |Teste de Audição e Escrita <br>
+* MET (Michigan Language Assessment) | Teste de Audição e Escrita <br>
      Nível B1 de fluência
 
 ## Adicionais
